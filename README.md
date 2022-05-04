@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Oneleitor
+- 👀 I’m interested in you
+- 😳 En realidad hablo español
+- 💖 Estoy aqui para poner sugerencias en people playground
